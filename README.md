@@ -8,7 +8,7 @@ The center constraints define the rules upon which the Theory of Interdependence
 For a human being to perceive anything, regardless of its source or nature, requires representation of the thing in the form of neurological signals. Neurological signals are information. They are comprised of differences in energy amounts arranged in formation.
 
 ### Everything is part of the universe
-If it can be named, described, pointed to directly, or perceived then it is part of the universe. An expanded concept of the universe includes thoughts, memories, consciousness, ideas, dreams, and feelings in addition to the physical universe of particles, atoms, molecules, cells, minerals, empty space, and electromagnetic radiation. A precise replay of the neurological signals representing a plastic ballpoint pen cannot be distinguished from the original perception of the pen. Thoughts and other non-physical objects must be included in the universe because physical objects are represented as non-physical objects when perceived.
+If it can be named, described, pointed to directly, or perceived then it is part of the universe. An expanded concept of the universe includes thoughts, memories, consciousness, ideas, dreams, and feelings in addition to the physical universe of particles, atoms, molecules, cells, minerals, empty space, and electromagnetic radiation. A precise replay of the neurological signals representing a plastic ballpoint pen cannot be distinguished from the original perception of the pen. Thoughts and other non-physical objects must be included in the universe because physical objects are represented as those non-physical objects when perceived.
 
 ### The structure of human perception and the structure of the universe are inseperable
 dfgddsfs
