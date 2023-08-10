@@ -13,7 +13,7 @@ If it can be named, described, pointed to directly, or perceived then it is part
 ### The structure of human perception and the structure of the universe are inseperable
 dfgddsfs
 
-### The limits of human perception as greater than previously known
+### The limits of human perception are greater than previously known
 The limits of human perception are defined as the entire set of perceptive capabilities understood to be accessible to at least one human being over the course of recorded history. The known limits of human perception are incorrect. The limits of human perception known by an individual person are incorrect because only a single other person with knowledge of any additional human perceptive capabilities is required to prove that is true. Proving that it is not true requires a survey of the entire body of knowledge of all humanity regarding human perception and regularly updated interview records for every living person on the planet. The limits of human perception known by the entire human population are incorrect because the definition of that knowledge is the survey and interviews previously referenced and those do not exist. The ultimate limits of human perception are beyond the collectively known limits because that is true provided that at least one additional perceptive capability of humans is added to the list at any point in the future up until the last heartbeat of the last human being.
 
 ## Premises
